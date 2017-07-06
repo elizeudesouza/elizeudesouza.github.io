@@ -1,4 +1,4 @@
-# SOBRE ELIZEU 'Ligeirinho' DE SOUZA 
+# UM POUCO SOBRE MIM E MINHA CAMPANHA 
 ## SOU DESSA TERRA, SOU TRABALHADOR
 Nasci em Primeiro de Maio, vivo aqui há 53 anos. Minha esposa também é daqui, meus filhos nasceram aqui. Trabalhei na roça, fui açougueiro, fui coordenador de serviço por 14 anos na prefeitura e há mais de 10 anos sou eletricista.
 
