@@ -1,16 +1,20 @@
 # PLANO DE GOVERNO - DIMINUIR CARGOS COMISSIONADOS PARA 12 SECRETARIAS 
 Caso Prefeito, tenho como propósito inicial do meu governo, diminuir os cargos comissionados para 12 secretarias. Lembrando que não faço e não farei acordos políticos, os cargos comissionados serão ocupados por especialistas e/ou técnicos nas suas áreas de atuação.
+
 Meu trabalho se guiará por um dos princípios fundamentais da gestão pública: a gestão democrática. Assim, a participação da população será assegurada por meio de seus representantes nos Conselhos Municipais, nas audiências públicas e nos diálogos estabelecidos diretamente com as pessoas. Tenho certeza que, juntos, podemos ir em busca e trazer as melhorias que nosso município precisa e, desta forma, estabelecer uma melhor qualidade de vida para a nossa população.
+
 Transparência, honestidade, trabalho sério, visão de futuro e cuidados com nossa cidade e sua população, esse é o meu lema.
+
 Os desafios serão muitos, eu sei, enfrentá-los sozinho não é minha pretensão. Acredito que, com o trabalho e a dedicação de uma boa equipe, com planejamento, fé e determinação, será possível alcançarmos um modelo de administração pública que se fortalecerá nas ações desenvolvidas e na busca constante pelo bem comum da população.
 
 # PLANO DE GOVERNO - EDUCAÇÃO E ESPORTE
 Tenho como propósito, caso seja eleito Prefeito Municipal, recuperar os espaços destinados à atividades esportivas e de lazer no Terminal Turístico Paranatur. Assim, será possível a criação de um ambiente onde crianças e adolescentes praticarem várias modalidades esportivas, como: futsal, futebol, basquete, vôlei, handebol, natação, skate, atletismo, entre outras.
+
 O objetivo desta ação é oportunizar uma vida mais saudável, segura e responsável aos nossos filhos, livrando-os muitas vezes do caminho das drogas, da prostituição e do abandono. Bem sei quantas aflições vivem os pais que trabalham o dia todo e temem pela segurança de seus filhos depois do horário escolar.
+
 Acredito, melhor dizendo, tenho certeza que a parceria entre as secretarias de Educação e de Esporte trará este benefício à nossa comunidade.
 
 # SOU DESSA TERRA, SOU TRABALHADOR
-
 Nasci em Primeiro de Maio, vivo aqui há 53 anos. Minha esposa também é daqui, meus filhos nasceram aqui. Trabalhei na roça, fui açougueiro, fui coordenador de serviço por 14 anos na prefeitura e há mais de 10 anos sou eletricista.
 
 Conheço bem essa cidade: a zona rural, os bairros a área mais central. Vou trabalhar muito por Primeiro de Maio.
