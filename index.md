@@ -22,7 +22,7 @@ Também vou ajudar o Ligeirinho a instalar um posto do Corpo de Bombeiros às ma
 
 Estou com Ligeirinho para prefeito e peço o seu voto e de sua família. Primeiro de Maio vai ficar melhor!” – Tercilio Turini
 
-
+#
 # PLANO DE GOVERNO 
 ## DIMINUIR CARGOS COMISSIONADOS PARA 12 SECRETARIAS 
 Caso Prefeito, tenho como propósito inicial do meu governo, diminuir os cargos comissionados para 12 secretarias. Lembrando que não faço e não farei acordos políticos, os cargos comissionados serão ocupados por especialistas e/ou técnicos nas suas áreas de atuação.
